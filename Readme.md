@@ -1,4 +1,4 @@
 wow 
 
-this has a tiypo 
+this has a typo 
 
